@@ -2,8 +2,8 @@
 
 ## Author
 
-* **Name**: Sushil Shiva R
-* **Register Number**: 212224250017
+* **Name**: Issac Henry Rufuson S  
+* **Register Number**: 212224250007
 ---
 
 ## Objective
